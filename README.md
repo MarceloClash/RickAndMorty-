@@ -15,6 +15,7 @@
 
 
 ### 🔗 [https://ubiquitous-lily-ff2b77.netlify.app/) 🔗
+### 🔗 [https://marceloclash.github.io/RickAndMorty-/) 🔗
 
 
 
